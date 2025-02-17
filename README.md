@@ -2,8 +2,9 @@
 BY Mazher Kaleem - M.A
 LIST IMRAN SERIES BY MAZHER KALEEM M.A
 
-فہرست از مظہر کلیم ایم اے
-آ خری ناول مہینے اور سن اشاعت کے حساب سے ترتیب دیئے گئے ہیں .
+فہرست از مظہر کلیم ایم اے کی عمران سیریز کے ناول 
+
+آخری ناول مہینے اور سن اشاعت کے حساب سے ترتیب دیئے گئے ہیں .
 
 01 ۔ شیزوفرنیا .
 
@@ -1323,6 +1324,7 @@ LIST IMRAN SERIES BY MAZHER KALEEM M.A
 
 653  بگ ٹارگٹ ۔ اگست 2019
 
+نوٹ: کافی ناول مظہر کلیم ایم اے کے دو حصوں پر مشتمل تھے ۔ پبلشرز حضرات نے ان ناولوں کو بعد میں کمبائنڈ سیکنڈ ایڈیشن میں پبلش کیا ہے اس وجہ سے مظہر کلیم ایم اے سر کے ناولوں کی تعداد 750 تک بھی پہنچ سکتی ہے اور ابھی تک مظہر کلیم ایم اے کا آ خری ناول پبلش نہیں ہوا ہے جو چھ حصوں پر مشتمل ہے ۔ 
 
 https://www.facebook.com/mfahad.ahmed.5/posts/pfbid02DEGzUX5u9VofYsvEwTPHGXJT2TGCDU1R9sH8Qg79EFTVTtsMkxHb2bcF2jUbapcnl?__cft__[0]=AZUAaMPZ-NI82OGwKWUyqiTzUslXJVXHND0XqWjJnSWFWymoCIi_rJOnaV40MBSn8bLmZ7bVg8PsxR-4nsA2NKPkO-ZPqNZZcj118spZ5YQ5iB4pVAmyJtziktgx3aPgNfuHfBe-nKTgbZTXvqsdyntr&__tn__=%2CO%2CP-R
 
